@@ -1,0 +1,1 @@
+# Al-Mas-as-Cyclical-Placeholder-A-First-Principles-Reappraisal-of-the-Quranic-Data-with-Resonances
